@@ -25,8 +25,8 @@ Favorite Game :video_game:
     
 Favorite Meme
  - You choose
-  1. https://cloud.githubusercontent.com/assets/10507318/5950421/f4a1f8de-a727-11e4-940d-2ec01c85a260.jpg
-  2. http://static.fjcdn.com/pictures/Procrastinators+unite+tomorrow+i+m+not+lazy+i+m+just+too+busy_0f2cb1_3524703.jpg
+  1. http://www.bajiroo.com/wp-content/uploads/2014/03/its-gone-funny-graduation-day-memes-pics.jpg
+  2. http://blogs.oregonstate.edu/bebeaverbold/files/2015/05/3p21pp.jpg
   
 Favorite Quote
    `Make Hay while the Sun shines`
